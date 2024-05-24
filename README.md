@@ -5,7 +5,7 @@
 Brief Intro:
 私は Musa Dove です。学士号を取得しようとしている学生です。現在通っているGVSUからAPU立命館への編入を検討しています。私は語学力の向上に全力で取り組んでいます。
 (English)
-My name is Musa Dove. I am a student pursuing a bachelor's degree. I am considering transferring from GVSU, which I currently attend, to APU Ritsumeikan. I am working hard to improve my language skills.
+My name is Musa Dove. I am a student pursuing a bachelor's degree. I am in the process of transferring from GVSU, which I currently attend, to APU Ritsumeikan. I am working hard to improve my language skills.
 
 Recent Projects I Led Recently:
 
